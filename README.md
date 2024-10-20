@@ -1,2 +1,2 @@
 # spartavoid.github.io
-Just being SPARTA !
+Rindu Yang Dulu 
